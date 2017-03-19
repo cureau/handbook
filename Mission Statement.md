@@ -1,5 +1,5 @@
 # Mission Statement
 
-## Our mission is to empower everyone to own their identity online.
+## Our mission is to multiply the joy & ease of giving & getting.
 
-We build a secure standard of identity for businesses to replace passwords, allowing users to have an authentic and personal relationship with the technology they use. Our core values guide our strategies and individual actions so that we create a company whose character is as radical as our product.
+We build elegant products and solutions for people who help others. These people work at foundations, governments, and non-profits. Giving and getting is among the most joyful of human experiences. We build products to multiply that joy and make it easy to raise funds and deliver impact.
